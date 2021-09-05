@@ -1,1 +1,1 @@
-by prnaav combined panrtnership by kimlim justin
+by pranav combined partnership by kimlim justin
